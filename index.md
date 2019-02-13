@@ -1,7 +1,7 @@
 
 ## You are here because you made a discovery.
 
-You realised that what is more important than attracting users. 
+You realised what is more important than attracting users. 
 
 ### The key is not to lock-in and hold individuals. 
 
