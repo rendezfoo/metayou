@@ -13,6 +13,6 @@ Their choices. Actions. Preferences. Activities. Thoughts. Emotions.
 
 But you can.
 
-Metayou.com is for sale for US$1,000,000.
+Metayou.com is for sale for US$ 1,000,000.
 
 `offer@metayou.com`
